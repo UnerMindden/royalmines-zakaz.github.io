@@ -1,1 +1,1 @@
-# royalmines-zakaz.github.io
+# krysha-royalmines.github.io
